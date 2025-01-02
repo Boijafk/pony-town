@@ -5,7 +5,8 @@ I am online at pony town Safe Vietnam lobby #1/ Safe server and you can meet me 
 I am Vietnamese so my skin has a Vietnamese name so you can recognize me.
 I'm so happy to play with you!!!.../ Thanks for reading!!! 💝
 
-![z6189250542826_07028132f3b360f5c628d9607db179a7](https://github.com/user-attachments/assets/6e60a55b-0c21-4081-81ed-fcb883c3ad5c) 
+![z6189313011305_eaeeabf76ced924f6fe6180e030212ce](https://github.com/user-attachments/assets/d100018c-7749-4463-9436-52954be477db)
+
 
 
 
