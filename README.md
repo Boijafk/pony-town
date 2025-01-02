@@ -1,4 +1,4 @@
-# pony-town
+# READ IF YOU WANT TO
 My favorite game!!!
 I often play games with friends or afk alone.../I am comfortable with your actions, gestures towards me (kissing/sitting together/...)
 I am online at pony town Safe Vietnam lobby #1/ Safe server and you can meet me there.../
